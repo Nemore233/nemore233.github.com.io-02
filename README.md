@@ -1,1 +1,1 @@
-# nemore233.github.com.io-02
+# https://nemore233.github.io/test02/
